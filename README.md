@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on AI developing and full stack developer
 - 📫 How to reach me :.https://www.linkedin.com/in/orlie-mica-7a958b362/
                        .orlymicabaranshamaje@gmail.com
-- 😄 Pronouns: Him
+                       .@_0rlie.e
+- 😄 Pronouns: Him/Me
 - ⚡ Fun fact: coding,keyboard typing...
   
 
